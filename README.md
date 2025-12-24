@@ -1,7 +1,7 @@
 # 💫 Hi 👋, I'm Omkar
 **A passionate Full Stack Developer | Building Products that solves problems**
 
-Email Me 👉 ✉️ **psomkar02.com** , For Collaboration/Project or Anything Else. 😊😊
+Email Me 👉 ✉️ **psomkar02@gmail.com** , For Collaboration/Project or Anything Else. 😊😊
 
 
 
